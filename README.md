@@ -1,1 +1,1 @@
-https://lsxthashir.github.io/pages/main/index.html
+https://lsxthashir.github.io/shelter/pages/main/
